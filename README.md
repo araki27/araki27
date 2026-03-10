@@ -4,6 +4,6 @@ Curso de Bacharelado em Ciência da Computação na Fundação Universidade Regi
 Interessada no crescimento pessoal e na aquisição de experiência para assegurar um melhor desenvolvimento profissional; possui gosto por ilustração como exercício de criatividade durante as horas vagas.
 
 Contatos
-LinkedIn:
-Email:
+LinkedIn: https://www.linkedin.com/in/aya-araki-0120203b5?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
+Email: ayayaraki@gmail.com
 
