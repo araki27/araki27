@@ -6,5 +6,6 @@ Interessada no crescimento pessoal e na aquisição de experiência para assegur
 Contatos
 
 LinkedIn: https://www.linkedin.com/in/aya-araki
+
 Email: ayayaraki@gmail.com
 
